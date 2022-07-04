@@ -1,5 +1,5 @@
 # About me
-- Hi, I’m Max! I'm a 16 year old male who is very introverted and identifies as asexual. 
+- Hi, I’m Max! I'm a 17 year old male who is very introverted and identifies as asexual. 
 
 ## More about me
 Well, I'm a human, guaranteed. I also am from the planet Earth, just like you (I hope 👀)! In my free time I like to cube a little (PB for the 3*3 being 17.32) and 
